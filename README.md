@@ -1,5 +1,5 @@
 # 🪐 About Me 💫
-🚀 I'm a Computer Science student passionate about physics, science, and technology<br/> 
+🚀 I'm a Computer Science student passionate about physics, science, sapce and technology<br/> 
 🌏 I'm currently exploring different areas of interest and working on finding my next exciting project
 
 
